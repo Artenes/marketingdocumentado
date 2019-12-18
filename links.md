@@ -7,10 +7,15 @@
 ## Sites internacionais
 
 [Smart Passive Income](https://www.smartpassiveincome.com/)
+
 [Money Mound](https://www.moneymound.com/)
+
 [Affiliate Marketing School](http://affiliatemarketing.ws/)
+
 [Rakuten Marketing](https://blog.rakutenmarketing.com/)
+
 [High Paying Affiliate PRograms](https://highpayingaffiliateprograms.com/)
+
 [Better Marketing](https://medium.com/better-marketing)
 
 ## Discussões interessantes
